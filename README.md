@@ -10,4 +10,4 @@
 * ⚡ Fun fact: I spend almost 10 hours on watching youtube.
 * 👨‍💼 In free time :like to learn business.
 
-# love to explore new skills and technologies.
+# 🦅 love to explore new skills and technologies 😊😀.
