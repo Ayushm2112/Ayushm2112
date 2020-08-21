@@ -10,4 +10,11 @@
 * ⚡ Fun fact: I spend almost 10 hours on watching youtube.
 * 👨‍💼 In free time :like to learn business.
 
-# 🦅 love to explore new skills and technologies 😊😀.
+# 🦅 love to explore new skills and currently exploring everthing😀.
+
+Connect with me:
+codeSTACKr.comcodeSTACKr | YouTubecodeSTACKr | TwittercodeSTACKr | LinkedIncodeSTACKr | Instagram
+
+
+Languages and Tools:
+Visual Studio CodeHTML5CSS3SassJavaScriptReactGatsbyGraphQLNode.jsDenoSQLMySQLMongoDBGitGitHubTerminal
