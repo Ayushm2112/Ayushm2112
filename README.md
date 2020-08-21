@@ -2,7 +2,7 @@
 # Hola, I'm Ayush Mishra! 👋
 
 * 🔭 I’m currently working on web project.
-* 🌱 I’m currently working on css.
+* 🌱 I’m also working on css(actually i am working on soo many things😂).
 * 🤔 I’m looking for help to improve my cv.
 * 💬 Ask me about android studio and other technology.
 * 📫 How to reach me: linkedin:@....
