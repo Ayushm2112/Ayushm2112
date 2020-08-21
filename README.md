@@ -7,7 +7,7 @@
 * 💬 Ask me about android studio and other technology.
 * 📫 How to reach me: linkedin:@....
 * 😄 Pronouns: He/His
-* 👨‍💼 In free time :like to learn business.
+* 👨‍💼 In free time : I like to learn business.
 * ⚡ Fun fact: I spend almost 10 hours on watching youtube.
 * 🦾 My 2020 goal: To do my best😅
 
