@@ -9,7 +9,8 @@
 * 😄 Pronouns: He/His.
 * ⚡ Fun fact: I spend almost 10 hours on watching youtube.
 * 👨‍💼 In free time :like to learn business.
+* 🦾 My 2020 goal: To do my best😅
 
 # 🦅 love to explore new skills and currently exploring everthing😀.
 
-Connect with me:
+Connect with me: On Linkedin
