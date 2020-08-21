@@ -5,7 +5,7 @@
 * 🌱 I’m also working on css(actually i am working on soo many things😂).
 * 🤔 I’m looking for help to improve my cv.
 * 💬 Ask me about android studio and other technology.
-* 📫 How to reach me: linkedin:@....
+* 📫 How to reach me: linkedin:@https://www.linkedin.com/in/ayush-mishra-aaaa231b2/
 * 😄 Pronouns: He/His
 * 👨‍💼 In free time : I like to learn business.
 * ⚡ Fun fact: I spend almost 10 hours on watching youtube.
