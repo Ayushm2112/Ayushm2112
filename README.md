@@ -13,8 +13,3 @@
 # 🦅 love to explore new skills and currently exploring everthing😀.
 
 Connect with me:
-codeSTACKr.comcodeSTACKr | YouTubecodeSTACKr | TwittercodeSTACKr | LinkedIncodeSTACKr | Instagram
-
-
-Languages and Tools:
-Visual Studio CodeHTML5CSS3SassJavaScriptReactGatsbyGraphQLNode.jsDenoSQLMySQLMongoDBGitGitHubTerminal
