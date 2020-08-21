@@ -1,4 +1,4 @@
-# hi there✌
+# Hi There✌
 # Hola, I'm Ayush Mishra! 👋
 
 * 🔭 I’m currently working on web project.
